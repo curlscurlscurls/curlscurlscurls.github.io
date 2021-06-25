@@ -1,4 +1,6 @@
-# r/curlyhair’s Ultimate Guide to the Curly Girl/Guy Method
+layout: page
+title: "r/curlyhair’s Ultimate Guide to the Curly Girl/Guy Method"
+permalink: /Wiki/
 
 ## Introduction
 We created this document as a more flexible, beautiful, and usable alternative to Reddit’s wiki system. It works better on mobile, we can actually embed images, and we can link directly to different sections! We hope you enjoy it as much as we’ve enjoyed making it.
