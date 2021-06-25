@@ -47,3 +47,49 @@ Just to be absolutely clear: You will use the reset wash shampoo very infrequent
 * **Do not skip this step!** This is the most common mistake we see starting out!
 * It might take more than one CG-approved wash and some trial & error to see a difference! Give it at least two weeks before posting a follow-up, unless you are desperate.
 * After the reset wash, you have now officially started CG!
+
+## Beginner Routine
+Be prepared to throw everything you know about haircare out the window! The CG method really shakes things up. Even if it sounds crazy, give it a try!
+
+### Why try the beginner routine?
+It’s a quick, ultra minimal, and super cheap way to get started with the CG method! (Total cost: $11.79, as of June 2018.)
+
+This tried-and-true set of products and steps will help you build a foundation that you can modify as you get to know your hair. It will not work for everyone, but it is a great way to get started.
+
+Try it for a month and then come back with more specific questions.
+
+### Steps
+![Beginner Routine](/images/beginner_routine.png)
+
+#### RESET WASH
+This is the most important step! Do not skip this!
+
+Shampoo your hair with the reset wash shampoo. This will remove all of your old products (and any silicones, wax, etc. that they contain). The first time you do this routine, skip step 1 (Co-wash), since you just washed your hair with shampoo. Every other time, start with co-washing.
+
+Do not use this product every time you wash your hair (once every few weeks to months is okay). Your hair could be very dry and frizzy if you use it too much.
+
+1. CO-WASH
+  CO-wash stands for “Conditioner-Only washing.” Yes, that means you will only use conditioner to wash your hair, the conditioner takes the place of shampoo!
+
+  Vigorously massage the conditioner into your scalp and hair, like you would shampoo. While you rinse, keep rubbing to remove oils and dirt. Be sure to rinse thoroughly.
+  Not everyone can co-wash, particularly wavies. If this doesn’t work for you, try a sulfate-free shampoo aka low-poo (see the alternative product suggestions below).
+
+  A Note about Cowashing: Lots of people get nervous about putting conditioner on their roots.
+  
+  * Don't be! Most people adjust within a few weeks. Your scalp will stop overproducing oils if you stop stripping all the oils off with sulfates.
+  
+  * You can always do a wash with the reset shampoo once every week if need be, especially during the transition period.
+  
+  * You can also try a low-poo instead if you're very concerned. Check out the very very short go-to list of products for low-poo options.
+
+2. CONDITION AND DETANGLE
+  
+  Use a ton of conditioner! You’ll want at least a handful for shoulder-length hair, more if it's long or thick. (This is why we recommend inexpensive conditioners.) 
+  
+  Wait-- I put in MORE conditioner? Didn’t I just co-wash, and isn’t that the same thing? Not quite! It is the same product, but used with different applications/techniques to give different effects. The main focus of co-washing is to get dirt and oils out of your hair, not to make it look nice. Cowashing focuses on the scalp and involves thorough scrubbing and rinsing. Conditioning focuses on the lengths of your hair, letting the conditioner soak in to moisturize and clump the curls. Also, if you want to leave any conditioner in (lots of curlies do!), you can't do that if you only co-wash, since it's critical to completely wash out the co-wash.
+  
+  Detangle gently with fingers or a wide tooth comb. While your hair is slippery with conditioner in the shower, you can use a wide-toothed comb, a tangle teezer, or a "wet brush" to help remove tangles. Don't brush or comb your hair when dry (it makes curly hair poofy):
+  
+  OK to use (only while wet):
+  
+  (Left to right: wide-toothed comb, “wet brush”, tangle teezer, classic denman brush)
